@@ -1,0 +1,1 @@
+﻿Badge unlock scratch file
